@@ -1,2 +1,2 @@
-<h1> Devil's Advocate !!! </h1>
+<h1> STFU !!! </h1>
 
